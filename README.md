@@ -5,11 +5,11 @@ Im always open to communication, I am very kind and can support any dialogue if 
 free to hug me, im always up for it! </br>
 
 **dni if u:** </br>
-* complain too often and too much about your problems. Sorry but Im not a psychologist :( </br>
-* are too aggressive and toxic! </br>
+* if you complain too often and too much about your problems. Sorry but Im not a psychologist :( </br>
+* if you are too aggressive and toxic! </br>
 * if you are a homophobe, pedophile, alcoholic, drug addict, animal abuser! </br>
 * if you are under 13 years old </br>
-* people who think only about themselves! </br>
+* if you think only about themselves! </br>
 * if you have no interests or hobbies </br>
 * if you don't take initiative in communication </br>
 * if you are possessive! </br>
